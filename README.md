@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A SVRVAY OF THE PRETENDED Holy Discipline.Contayning the beginninges, successe, parts, proceedings, 
+
 1. TO THE READER.
 
 1. The Contents of this Booke.
